@@ -24,3 +24,4 @@
 
 ## Использование
 
+![123](https://github.com/user-attachments/assets/82d3270c-c2e2-4f49-96d2-a8c237ddaca3)
